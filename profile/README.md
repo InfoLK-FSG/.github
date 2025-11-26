@@ -1,2 +1,2 @@
-#INFO LK FSG
--Organisation nur für wahre Sigmas (if yk yk) 👀👀🥶🥶🥶🗣🗣
+# INFO LK FSG
+- Organisation nur für wahre Sigmas (if yk yk) 👀👀🥶🥶🥶🗣🗣
