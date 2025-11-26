@@ -1,0 +1,2 @@
+# .github
+- Organisation nur für wahre Sigmas (if yk yk) 👀👀🥶🥶🥶🗣🗣
